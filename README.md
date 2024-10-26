@@ -21,3 +21,4 @@ Spor bahisleri, futbol, basketbol, tenis gibi popüler branşların yanı sıra 
 Casibom, kullanıcı güvenliğini ön planda tutarak, güvenilir ödeme yöntemleriyle hızlı ve kolay işlem imkanı sağlıyor. Para yatırma ve çekme işlemleri, kullanıcıların rahatça yönetebileceği şekilde tasarlanmış. Müşteri destek ekibi, 7/24 hizmet vererek kullanıcıların her türlü sorusuna hızlı cevaplar sunuyor.
 
 Yeni üyelere cazip hoş geldin bonusları ve düzenli promosyonlar sunarak kullanıcılarının kazançlarını artırmalarına yardımcı oluyor. Sadık oyunculara özel fırsatlar ve ödüller, oyun deneyimini daha keyifli hale getiriyor.
+google-site-verification: google37670932830b1fc8.html
