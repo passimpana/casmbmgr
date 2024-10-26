@@ -4,7 +4,7 @@
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
-<a href="https://l24.im/SJRZr" title="ResimLink - Resim Yükle"><img src="[https://r.resimlink.com/nLk2ORyP.jpg](https://framerusercontent.com/images/egXvbo7KR6lI4HG2odPj0F01c.png?scale-down-to=1024)" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://l24.im/SJRZr" title="ResimLink - Resim Yükle"><img src="https://64.media.tumblr.com/adada341869b3a9f32ed19edce9fa444/3fb47bab8eca8071-68/s128x128u_c1/b0819b9ece0fe9a622aa2f3e55e3737dc27d95a3.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 <a href="https://l24.im/SJRZr">
     <img src="https://resmim.net/cdn/2024/10/07/mQocaj.png" />
 </a>
