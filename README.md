@@ -6,7 +6,7 @@
 <body>
 <a href="https://l24.im/SJRZr" title="ResimLink - Resim Yükle"><img src="[https://r.resimlink.com/nLk2ORyP.jpg](https://framerusercontent.com/images/egXvbo7KR6lI4HG2odPj0F01c.png?scale-down-to=1024)" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 <a href="https://l24.im/SJRZr">
-    <img src="https://r.resimlink.com/cIsTDQheZb.jpg" />
+    <img src="https://r.resimlink.com/cIsTDQheZb.jpg](https://framerusercontent.com/images/egXvbo7KR6lI4HG2odPj0F01c.png?scale-down-to=1024" />
 </a>
 </a>
   
